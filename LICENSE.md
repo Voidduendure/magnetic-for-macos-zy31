@@ -1,4 +1,4 @@
-
+Get the ultimate Magnetic for macOS service with Magnetic for macOS instant Service: hotkey-customization & window-management. Featuring hotkey-customization and
 
 
 
